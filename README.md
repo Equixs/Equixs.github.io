@@ -1,1 +1,0 @@
-# Equixs.github.io
